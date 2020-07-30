@@ -1,0 +1,2 @@
+# RIBRS
+business school
